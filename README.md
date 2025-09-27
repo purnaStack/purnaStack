@@ -1,7 +1,7 @@
 
 You said:
 # 💫 Hi 👋, I'm purna chandra
-**A passionate  Full Stack Developer || Software Developer Enginnering || Kurnool from India**
+**A passionate  Full Stack Developer ||  Backend Enthusiast  ||Problem Solver**
 
 Email Me 👉 ✉️ **purnachandra.sde@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
