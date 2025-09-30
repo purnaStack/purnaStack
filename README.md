@@ -1,6 +1,6 @@
 
 You said:
-# 💫 Hi 👋, I'm Purna chandra
+# 💫 Hi 👋, I'm Purna Chandra
 **A passionate  Full Stack Developer ||  Backend Enthusiast  ||Problem Solver**
 
 Email Me 👉 ✉️ **purnachandra.sde@gmail.com** For Collaboration/Project or Anything Else. 😊😊
